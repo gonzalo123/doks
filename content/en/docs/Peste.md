@@ -26,7 +26,7 @@ Gracias a unas minas de oro que habían descubierto consiguieron mucho dinero qu
 
 Después de las guerras médicas volvió a surgir el tema de los muros sobre Ateneas. La estrategia de Pericles en la guerra del Peloponeso fue fortificar Atenas para contener al potente ejército espartano. Los muros que no habían querido hacer antes los hacen ahora.
 
-El problema era que si fortificaban Ateneas quedaban aislados del mundo y Esparta no tenía más que sitiarlos y esperar a que se quedaran sin recursos. 
+El problema era que si fortificaban Ateneas quedaban aislados del mundo y Esparta no tenía más que sitiarlos y esperar a que se quedaran sin recursos.
 
 Es por esto que Pericles decide fortificar no solo Atenas sino crear unos muros que unieran la polis con los puertos de mar (Atenas no estaba conectada al mar directamente). Crearon así los llamados “muros largos” que unían Atenas con el Pireo.
 
@@ -34,13 +34,13 @@ Es por esto que Pericles decide fortificar no solo Atenas sino crear unos muros 
 
 De esta manera, aunque Esparta los sitiara, podían reabastecerse con mercancías que llegaban por mar (donde tenían la supremacía total) y aguantar un sitio de Esparta a Atenas durante tiempo.
 
-Fundamentalmente les permitía traer grano de Egipto (el granero del mundo en época) mientras que los ciudadanos se encontraban dentro de los muros protegidos de Esparta. 
+Fundamentalmente les permitía traer grano de Egipto (el granero del mundo en época) mientras que los ciudadanos se encontraban dentro de los muros protegidos de Esparta.
 
 ![La_reconstrucción_de_los_muros_largos_de_Atenas_conectando_a_su_puerto_en_Piraeus_en_la_antigua_Grecia_Fotografía_de_stock_-_Alamy.png](Peste%204020c0e908854667a392e7c510abaddc/La_reconstruccion_de_los_muros_largos_de_Atenas_conectando_a_su_puerto_en_Piraeus_en_la_antigua_Grecia_Fotografia_de_stock_-_Alamy.png)
 
 Además mientras que se encontraban resguardados tras los muros su potente flota podía cortar las líneas de suministro espartanas. Era su estrategia para ganar la guerra.
 
-Bueno pues parecer que un virus que originariamente parecía provenir de África (se cree que desde Etiopía) viajó en uno de esos barcos de mercancías e infectó a la población sitiada. 
+Bueno pues parecer que un virus que originariamente parecía provenir de África (se cree que desde Etiopía) viajó en uno de esos barcos de mercancías e infectó a la población sitiada.
 
 Atenas estaba superpoblada ya que habían metido dentro de los muros a muchos campesinos que vivían a las afueras. Esto propagó rápidamente la enfermedad. Es lo que se conoce como la peste de Atenas.
 
